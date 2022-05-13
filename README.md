@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AdrianDEChan
+- 👋 Hi, I’m  Yiyu chen @AdrianDEChan
 - 👀 I’m interested in fishing and roadtrip!!!
 - 🌱 I’m currently on last year of my bachelor 
 - 📫 How to reach me chyytiger@gmail.com
